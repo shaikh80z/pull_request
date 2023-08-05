@@ -17,3 +17,4 @@ Join my meetup: https://www.meetup.com/londoniac
   * here's where I found this video: www.youtube.com/watch?v=nM_wNKuHTJw
   * found this video on youtube. Please, follow me on linkedin: https://www.linkedin.com/in/emeka-obidike-99167b20a/
   * how to Contribute to Grant?
+  * https://www.linkedin.com/in/adeel-ahmed-shaikh-083a17213/
